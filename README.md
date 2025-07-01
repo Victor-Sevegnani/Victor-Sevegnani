@@ -30,4 +30,4 @@
 
 ### 🔗 Conecte-se comigo
 
-[LinkedIn](https://www.linkedin.com/in/seu-linkedin-aqui)
+[LinkedIn](https://www.linkedin.com/in/victor-sevegnani-45b130355/)
